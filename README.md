@@ -34,7 +34,7 @@ Netflix支持个性化推荐、多设备播放、无广告高清流畅播放，�
 
 接下来，我们将重点介绍自己注册Netflix账号和通过专业Netflix合租平台获取Netflix账号这两种方式。
 
-### 自己注册Netflix账号操作步骤
+## 自己注册Netflix账号操作步骤
 
 #### 第一步：访问Netflix官方网站：www.netflix.com
 
