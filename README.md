@@ -114,7 +114,7 @@ Netflix的高级套餐价格较高，个人订阅成本昂贵，而合租模式�
 
 * 星际放映厅官网：https://www.naifeistation.com/i/3oDB5y 
 
-* **优惠码：GPTBMW，享优惠**
+* **优惠码：xjfyt2025，享优惠**
 
 星际放映厅是一家专注于流媒体账号合租的在线服务平台，提供Netflix、Disney+、Apple ID、Google账号、ChatGPT Plus、Claude Pro等热门服务。凭借稳定的服务质量、快速响应的售后支持和经济实惠的价格，星际放映厅成为众多用户选择的Netflix合租平台之一。平台致力于为用户提供便捷、高效、安全的一站式合租服务，满足不同用户的观影和在线娱乐需求。
 
