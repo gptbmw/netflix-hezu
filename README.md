@@ -18,8 +18,8 @@ Netflix支持个性化推荐、多设备播放、无广告高清流畅播放，�
 
 专业的流媒体合租平台提供Netflix账号拼车服务，让用户可以以低价享受Netflix内容。这种方式的主要优点是价格实惠，同时操作简单，无需用户自行注册和支付。此外，正规奈飞合租平台通常运营稳定、信誉良好，并提供售后支持，如果遇到问题，可以联系平台客服解决。对于不想自己注册账号的用户来说，这是最方便、最划算的选择。
 
-**Netflix奈飞合租平台一：<a href="https://nf.video/Sy195">银河录像局</a>**
-**Netflix奈飞合租平台二：<a href="https://www.naifeistation.com/i/3oDB5y">星际放映厅</a>**
+**Netflix奈飞合租平台一：<a href="https://nf.video/Sy195">银河录像局</a>**     
+**Netflix奈飞合租平台二：<a href="https://www.naifeistation.com/i/3oDB5y">星际放映厅</a>**     
 **Netflix奈飞合租平台三：<a href="https://universalbus.cn/?s=fYF3tUJoi6">环球巴士</a>**
 
 * 方式二：自己注册Netflix账号
